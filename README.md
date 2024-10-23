@@ -1,0 +1,1 @@
+# Captador-de-Impulsos-S.O
